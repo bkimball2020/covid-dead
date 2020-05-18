@@ -1,0 +1,2 @@
+# covid-dead
+New Thread
